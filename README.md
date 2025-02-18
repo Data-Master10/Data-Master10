@@ -1,4 +1,4 @@
-**👋 Hi, I’m @Data-Master10**  
+**👋 Hi, I’m @Junaid Samdani**  
 🚀 Data Engineer | Big Data Architect | Cloud Data Solutions Specialist  
 
 **👀 I’m interested in...**  
